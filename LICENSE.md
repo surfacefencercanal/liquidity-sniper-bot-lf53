@@ -1,4 +1,4 @@
-# 
+# Get the ultimate liquidity sniper bot with AI-powered liquidity sniper bot | front-running + trailing-stop. Featuring front-running and trailing-stop, it's the best choice for
 
 
 
